@@ -35,7 +35,7 @@ Here are some of the projects you’ll find on my profile:
 
 📫 **Reach Me At**
 
-- 📧 Email: moolicharithareddy@gmail.com  
+- 📧 Email: kadiyamlahari14@gmail.com 
 - 🔗 LinkedIn: [linkedin.com/in/laharikadiyam](https://linkedin.com/in/laharikadiyam)  
 - 🌐 Portfolio: *coming soon...*
 
